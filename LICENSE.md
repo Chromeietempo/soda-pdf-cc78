@@ -1,4 +1,4 @@
-# 
+# best Wave para PC scripts é o melhor Wave para PC scripts com contabilidade de projetos e contabilidade. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
